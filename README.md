@@ -2,10 +2,9 @@
 
 Coin Master has taken the gaming world by storm with its unique blend of slot machines, card collecting, and village building. As players worldwide seek to maximize their spins and enhance their gameplay, free spin links have become a hot topic. This comprehensive guide will provide you with everything you need to know about **today's Coin Master free spins**, including the coveted 5000 spin link for 2024. 
 
-[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://todaylink.site/Coinspins/)
+[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://coinmasterfreespinslink.github.io/coinslink/)
 
-
-[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://todaylink.site/Coinspins/)
+[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://coinmasterfreespinslink.github.io/coinslink/)
 ## Table of Contents
 
 1. [Introduction to Coin Master](#introduction-to-coin-master)
